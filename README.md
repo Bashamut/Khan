@@ -1,0 +1,2 @@
+# Khan
+God above all 
